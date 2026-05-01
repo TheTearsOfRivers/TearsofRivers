@@ -1,6 +1,6 @@
 [//]:(cutouts by criticalgalaxy)
 ![](https://i.postimg.cc/nzys6NkH/neuvtop.png)
- ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀renrym⠀˓⠀✶⠀ ࣪ ˖⠀he / him%%⠀˖⠀!!⠀![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀◟
+ ⁎⠀⁺⠀˖⠀![](https://i.postimg.cc/wMxKTjFF/coral.gif)⠀renrym⠀˓⠀✶⠀ ࣪ ˖⠀he / him⠀˖⠀!!⠀![](https://i.postimg.cc/FsWvz3MS/wave.gif)⠀◟
 ![](https://i.postimg.cc/y82zXBYY/fish.gif)⠀✦⠀⁺⠀◟transmasc ⠀![](https://i.postimg.cc/5NN1fnR1/jelly.gif)⠀𓏲⠀ ๋࣭ ⠀⁎⠀male⠀⊹⠀.
 ⊹⠀˚⠀₊ ISTP/INTJ⠀![](https://i.postimg.cc/Gm4Cy9R5/shell.gif)⠀₍ᐢ..ᐢ₎⠀˖⠀⭑⠀4teen yrs⠀‧⠀₊⠀˚⠀![](https://i.postimg.cc/XJbSm8CR/jellyfish.gif)
 ![](https://i.postimg.cc/VNH0FJ00/neuvmid.png)
